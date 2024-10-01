@@ -1,1 +1,1 @@
-# Praktyka-Jakub-Stankowski-
+# Praktyka-Jakub-Stankowski
